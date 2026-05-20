@@ -19,4 +19,4 @@
    ooOOOOooooooooooooooooooooooooooooOOOOoo
 ```
 
-我跟貓在巴士頂上看星空
+Me and cat watching stars on the roof of a bus
